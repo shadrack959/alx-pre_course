@@ -1,2 +1,2 @@
-#Shadrack Kipkirui Korir
-**getting to know how to create a repo**
+#Shadrack
+**Really getting tough but will manage it.**
